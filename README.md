@@ -1,7 +1,7 @@
 
 # Sujay Anantha
 
-Brooklyn, NY | (571) 525 6692 | sa7055@nyu.edu | [LinkedIn](https://www.linkedin.com/in/sujay-anantha-1799961b0/) | [GitHub](https://github.com/Sujay-Anantha)
+Brooklyn, NY | (571) 525 6692 | sa7055@nyu.edu | [LinkedIn](https://www.linkedin.com/in/sujay-anantha-1799961b0/) 
 
 ## Education
 
